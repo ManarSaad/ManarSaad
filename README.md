@@ -1,5 +1,5 @@
 ### Hi there 👋
 
-Here is Manar, and i'm Junior Data Analyst.
+Here is Manar, and i'm a Data Analyst.
 
 
